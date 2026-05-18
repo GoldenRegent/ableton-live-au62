@@ -1,4 +1,4 @@
-# 
+# Sem banimento Vegas Pro para PC executor é o melhor Vegas Pro para PC executor com supressão de ruído e expressões. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
